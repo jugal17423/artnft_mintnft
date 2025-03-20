@@ -1,0 +1,1 @@
+# artnft_mintnft
